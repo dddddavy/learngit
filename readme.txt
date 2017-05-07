@@ -1,1 +1,1 @@
-guck git is such good!!
+Man git is such good!!
